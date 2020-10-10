@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+What is a smolder you ask? [Dictionary.com definition of smolder] (https://www.dictionary.com/browse/smolder?s=t)
